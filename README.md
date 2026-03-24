@@ -1,18 +1,18 @@
-&nbsp;<div align="right">
-
-we LOVE our friends >(,,^w^,,)< AAAAA #SWEETESTTWINS #GOATTWINS/DUO #POWERDUO #UNSTABLETWINS #UNSTABLETRIO !!! #gourcien #PT #BFF #BSFS4&5
-
-</div>
-
-&nbsp;<div align="center">
-
 ![](https://files.catbox.moe/gaka3x.jpg)
 
-</div>
+thank you so much you guys for staying with us !! #ilmfs #ilmfsm SHOUT OUT 2 OUR GIRLFRIEND !! HI VCRR !! MWAMWAMWAA 💗💗we LOVE our friends >(,,^w^,,)< AAAAA shout outs (no order duh we love everyoneee EQUALLY.) : pivot #TTBros #POORDUO , bunky & gourmand #UNSTABLETRIO #SWEETESTTWINS #GOATTWINS #POWERDUO
 
+
+<summary>test<details><p>
+
+weeeh
+
+</summary></details></p>
+
+
+&nbsp;<div align="right">
+</div>
+&nbsp;<div align="center">
+</div>
 &nbsp;<div align="left">
-
-thank you so much you guys for staying with us !! #ilmfs #ilmfsm SHOUT OUT 2 OUR GIRLFRIEND !! HI VCRR !! MWAMWAMWAA 💗💗
-
 </div>
-
