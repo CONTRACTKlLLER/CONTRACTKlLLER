@@ -1,6 +1,10 @@
 
 &nbsp;<div align="center">
 
+![Label](https://img.shields.io/badge/contractee_lover-0A0A0A)
+![](https://komarev.com/ghpvc/?username=CONTRACTKlLLER&color=6CA8BA&label=cuties) 
+![Label](https://img.shields.io/badge/Your_number_one_pilot.-EDE7D8)
+
 ![](https://files.catbox.moe/gaka3x.jpg)
 
 <details><summary>friends mention </summary><p>
